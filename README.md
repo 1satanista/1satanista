@@ -4,7 +4,9 @@
 
 ![](https://i.pinimg.com/originals/48/6f/a6/486fa60e8b3248c04193833b45dac694.gif)
 
-i usually just hang around in pt with my closefriends since thats where im most comfortable. im kinda awkward around new people and it tooks forever for me to actually feel comfortable with someone. i dont really into dirty jokes if we just met or barely know each other (stranger). i dont befriend anyone under 16 either. pls dni if youre under that age we're probably not a good match as friends. c+h is okay though
+i usually just hang around in pt with my closefriends since thats where im most comfortable. im kinda awkward around new people.. thats why i dont int first and it tooks forever for me to actually feel comfortable with someone. 
+
+i dont really into dirty jokes if we just met or barely know each other (stranger). i dont befriend anyone under 16 either. pls dni if youre under that age we're probably not a good match as friends. c+h is okay though
 
 
 </div>

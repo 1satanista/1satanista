@@ -12,7 +12,7 @@ i dont really into dirty jokes if we just met or barely know each other (strange
 
 mostly playing on safe idn servers. my indonesian isnt that good, and i still dont understand some words(i might ignore u) i prefer us to use eng to communicate /nf
 
-
+![](https://64.media.tumblr.com/c05e7522c25492b1067936ba449ab8f5/2156b8a3dd07da58-c7/s75x75_c1/f729c5ea2d864e6d640e6f55c07c8831763adde3.gifv)
 </div>
 
 <!--

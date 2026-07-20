@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=01-heaven&label=Profile%20Views&color=ff69b4&style=flat)
 
-![](https://i.pinimg.com/originals/48/6f/a6/486fa60e8b3248c04193833b45dac694.gif)
+![](https://i.pinimg.com/originals/00/da/29/00da290b7c1af793fb1c412ecefd5e48.gif)
 
 i usually just hang around in pt with my closefriends since thats where im most comfortable. im kinda awkward around new people.. thats why i dont int first and it tooks forever for me to actually feel comfortable with someone
 
